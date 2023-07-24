@@ -1,1 +1,1 @@
-## this is for my understand
+## this is for my understanding
